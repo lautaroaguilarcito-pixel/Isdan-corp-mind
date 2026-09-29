@@ -1,0 +1,1 @@
+# Isdan-corp-mind
